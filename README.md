@@ -1,7 +1,7 @@
 <img src="https://64.media.tumblr.com/4aaabf4d2f08130eda57dd28726788bd/f92a565f98ee3f1b-57/s2048x3072/d857eeabaec607106a4d0486ed7e74cf86e28192.pnj" width="1000">
 
 <div align="center">
-<img src="https://www.makeship.com/_next/image?url=https%3A%2F%2Fcdn.shopify.com%2Fs%2Ffiles%2F1%2F0125%2F8261%2F7145%2Ffiles%2FChance_2_Plushie-SV3-P-1_500x.png.webp%3Fv%3D1769791177&w=750&q=75" width="350">
+<img src="https://www.makeship.com/_next/image?url=https%3A%2F%2Fcdn.shopify.com%2Fs%2Ffiles%2F1%2F0125%2F8261%2F7145%2Ffiles%2FChance_2_Plushie-SV3-P-1_500x.png.webp%3Fv%3D1769791177&w=750&q=75" width="250">
 
  </div>
  
