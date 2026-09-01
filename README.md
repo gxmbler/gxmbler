@@ -2,8 +2,8 @@
 
 <div align="center">
 
- $${\color{#97193a}Luck,\space \color{#97193a}Is,\space \color{#97193a}With\space \color{#97193a}You!}$$
-
+ $${\color{#97193a}"Luck\space \color{#97193a}Is\space \color{#97193a}With\space \color{#97193a}You, my love"!}$$
+ 
  </div>
  
  <div align="center">
