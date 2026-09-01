@@ -2,7 +2,7 @@
 
 <div align="center">
 
- $${\color{#97193a}"Luck\space \color{#97193a}Is\space \color{#97193a}With\space \color{#97193a}You,\space \color{#97193a}my love"!}$$
+ $${\color{#97193a}"Luck\space \color{#97193a}Is\space \color{#97193a}With\space \color{#97193a}You,\space \color{#97193a}my \space \color{#97193a}love"!}$$
  
  </div>
  
