@@ -51,6 +51,6 @@ $${\color{#C2F2D6FF}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Al
 
 <div align="center">
  
-$${\color{#C2F2D6FF}froggydude\space fictkin}}$$
+$${\color{#C2F2D6FF}froggydude\space fictkin}$$
 </div>
 
