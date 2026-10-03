@@ -46,7 +46,7 @@ $${\color{#C2F2D6FF}fav\space YTubers\space: FroggyDude,\space Laurenzside,\spac
 
 <div align="center">
  
-$${\color{#C2F2D6FF}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers. }$$
+$${\color{#C2F2D6FF}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
 </div>
 
 <div align="center">
