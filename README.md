@@ -27,30 +27,4 @@ $${\color{#97193a}"Luck\space \color{#97193a}Is\space \color{#97193a}With\space 
 
 <img src="https://64.media.tumblr.com/ae6101efbc47362222140dd2ae655409/f92a565f98ee3f1b-8e/s2048x3072/b910aab60b418714ec5275a317fcde9484dda7e2.pnj" width="1000">
 
-...................................................................
-
-<div align="center">
-
-$${\color{#C2F2D6FF}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle.}$$
-</div>
-
-<div align="center">
- 
-$${\color{#C2F2D6FF}feel\space free\space 2\space int\space and\space w2i,\space cud freely!\space might\space resp\space late,\space also\space I'm\space a\space very\space sensitive\space person,\space so\space please\space be\space nice\space to\space me\space but\space I\space don't\space mind\space jokes.}$$
-</div>
-
-<div align="center">
- 
-$${\color{#C2F2D6FF}fav\space YTubers\space: FroggyDude,\space Laurenzside,\space Kubzscouts,\space raygloom,\space teamfaisal,\space Squiddo,\space Twixxel.}$$
-</div>
-
-<div align="center">
- 
-$${\color{#C2F2D6FF}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
-</div>
-
-<div align="center">
- 
-$${\color{#C2F2D6FF}froggydude\space fictkin}$$
-</div>
 
