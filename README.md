@@ -6,7 +6,7 @@ $${\color{#BE78DA}my\space universe .."}$$
 </div>
 
 <div align="center">
-[<img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">]
+<img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">
 </div>
 
 
@@ -14,10 +14,11 @@ $${\color{#BE78DA}my\space universe .."}$$
 
 <p align="center">
   
-[<img src="https://i.postimg.cc/ryCFD5ys/obraz-2026-10-23-221744005.png" width="400">](https://rentry.co/angelicdxve)
-[<img src="https://i.postimg.cc/xjyTXLfs/obraz-2026-10-23-221722975.png" width="400">](https://hearts4cynari.straw.page)
-[<img src="https://i.postimg.cc/zv5zdGjd/obraz-2026-10-23-221644543.png" width="400">](https://en.pronouns.page/@oceance) 
-[<img src="https://i.postimg.cc/Jnj7ckbT/obraz-2026-10-23-221634924.png" width="400">](https://oceance.atabook.org) 
+[<img src="https://i.postimg.cc/ryCFD5ys/obraz-2026-10-23-221744005.png" width="350">](https://rentry.co/angelicdxve)
+[<img src="https://i.postimg.cc/xjyTXLfs/obraz-2026-10-23-221722975.png" width="350">](https://hearts4cynari.straw.page)
+
+[<img src="https://i.postimg.cc/zv5zdGjd/obraz-2026-10-23-221644543.png" width="350">](https://en.pronouns.page/@oceance) 
+[<img src="https://i.postimg.cc/Jnj7ckbT/obraz-2026-10-23-221634924.png" width="350">](https://oceance.atabook.org) 
 
 </div>
 
