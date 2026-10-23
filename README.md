@@ -1,6 +1,7 @@
 <div align="center">
   
-$${\color{#80B13C }"My\space god,\space}$$ $${\color{#80B13C }my universe .."}$$
+$${\color{#80B13C }"My\space god,\space}$$
+$${\color{#80B13C }my universe .."}$$
 
 </div>
 
