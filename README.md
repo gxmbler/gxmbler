@@ -33,6 +33,11 @@ $${\color{#BE78DA}my\space universe .."}$$
 <img src="https://64.media.tumblr.com/8690a97b390b4d9c51e73c640dbcdb76/bffbd2ab6e02ef27-8f/s2048x3072/7678ab3c8eeacb7fe7a56fafd9e0bba7293aae02.pnj" width="677">
 </div>
 
+<div align="center">
+<details> <summary>$${\color{#FFB3D0}about\space me\space : }$$</summary>
+
+</details> </div>
+
 
 
 DO ZROBIENIA!!!!!!!!!!!!
