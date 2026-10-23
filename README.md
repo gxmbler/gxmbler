@@ -22,12 +22,22 @@ $${\color{#BE78DA}my\space universe .."}$$
 <div align="center">
   
 [<img src="https://i.postimg.cc/ryCFD5ys/obraz-2026-10-23-221744005.png" width="350">](https://rentry.co/angelicdxve)
+<img src="https://64.media.tumblr.com/d077b5cf3599de53086a5d698bf9e960/e68650cb78cc07ef-17/s1280x1920/3ee1101ae09cc31925baefab1a33f4f945d2ae48.pnj" width="150">‎
 [<img src="https://i.postimg.cc/xjyTXLfs/obraz-2026-10-23-221722975.png" width="350">](https://hearts4cynari.straw.page)
-
+<img src="https://64.media.tumblr.com/ec668bd9cef4f1fabc25a3833c556166/1b46a114baf11ad1-5f/s500x750/0d423891b94698253824fccaa01da493d7bd7aad.pnj" width="150">‎
 [<img src="https://i.postimg.cc/zv5zdGjd/obraz-2026-10-23-221644543.png" width="350">](https://en.pronouns.page/@oceance) 
+<img src="https://64.media.tumblr.com/cf261146ed4c6770f52fa7694b914833/f80fa745a03faaa9-dc/s1280x1920/d7a7db2bc0ce336fa4cce1a8f005815a4dd6b6be.pnj" width="150">‎
 [<img src="https://i.postimg.cc/Jnj7ckbT/obraz-2026-10-23-221634924.png" width="350">](https://oceance.atabook.org) 
 
 </div>
+
+<div align="center">
+<img src="https://64.media.tumblr.com/8690a97b390b4d9c51e73c640dbcdb76/bffbd2ab6e02ef27-8f/s2048x3072/7678ab3c8eeacb7fe7a56fafd9e0bba7293aae02.pnj" width="677">
+</div>
+
+
+
+DO ZROBIENIA!!!!!!!!!!!!
 
 about me :
 call me meg or megan, 7teen, lesbian, autistic, 28/04
