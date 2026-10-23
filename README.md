@@ -25,7 +25,7 @@ $${\color{#BE78DA}my\space universe .."}$$
 [<img src="https://i.postimg.cc/xjyTXLfs/obraz-2026-10-23-221722975.png" width="350">](https://hearts4cynari.straw.page)
 [<img src="https://i.postimg.cc/zv5zdGjd/obraz-2026-10-23-221644543.png" width="350">](https://en.pronouns.page/@oceance) 
 [<img src="https://i.postimg.cc/Jnj7ckbT/obraz-2026-10-23-221634924.png" width="350">](https://oceance.atabook.org) 
-<img src="https://64.media.tumblr.com/3620e9a8ec27c73960ff27c163c195b6/c63005b05e65fe47-14/s250x400/4d1708221bfae8bc71842a5ee32ff42a24d9ea6b.gifv" width="150">‎ <img src="https://64.media.tumblr.com/cf261146ed4c6770f52fa7694b914833/f80fa745a03faaa9-dc/s1280x1920/d7a7db2bc0ce336fa4cce1a8f005815a4dd6b6be.pnj" width="350">‎ <img src="https://64.media.tumblr.com/966d653a1590706d83b589853e8051a7/c63005b05e65fe47-66/s250x400/26457a708550abaa49040ade550468fa47eda60a.gifv" width="350">‎ 
+<img src="https://64.media.tumblr.com/3620e9a8ec27c73960ff27c163c195b6/c63005b05e65fe47-14/s250x400/4d1708221bfae8bc71842a5ee32ff42a24d9ea6b.gifv" width="350">‎ <img src="https://64.media.tumblr.com/cf261146ed4c6770f52fa7694b914833/f80fa745a03faaa9-dc/s1280x1920/d7a7db2bc0ce336fa4cce1a8f005815a4dd6b6be.pnj" width="150">‎ <img src="https://64.media.tumblr.com/966d653a1590706d83b589853e8051a7/c63005b05e65fe47-66/s250x400/26457a708550abaa49040ade550468fa47eda60a.gifv" width="350">‎ 
 
 </div>
 
