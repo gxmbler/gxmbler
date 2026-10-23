@@ -7,12 +7,8 @@
 $${\color{#80B13C}"My\space god,}$$
 $${\color{#BE78DA}my\space universe .."}$$
 
-<img src="https://64.media.tumblr.com/252dd494e5b2ed5ced70cba8f1948fe7/bffbd2ab6e02ef27-a2/s2048x3072/a8e4b9d8457ac2f5ac5d864cbd48354d661bf7de.pnj" width="450">
+<img src="https://64.media.tumblr.com/252dd494e5b2ed5ced70cba8f1948fe7/bffbd2ab6e02ef27-a2/s2048x3072/a8e4b9d8457ac2f5ac5d864cbd48354d661bf7de.pnj" width="250">
 
-</div>
-
-<div align="center">
-<img src="https://64.media.tumblr.com/252dd494e5b2ed5ced70cba8f1948fe7/bffbd2ab6e02ef27-a2/s2048x3072/a8e4b9d8457ac2f5ac5d864cbd48354d661bf7de.pnj" width="450">
 </div>
 
 <div align="center">
