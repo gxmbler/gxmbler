@@ -1,13 +1,27 @@
 <div align="center">
+<img src="https://64.media.tumblr.com/9873d0d0f8247df64ba89cf5c6939fca/bffbd2ab6e02ef27-6e/s2048x3072/31a220f02a24bea5fdfb4c8573c2b362152f301d.pnj" width="677">
+</div>
+
+<div align="center">
   
 $${\color{#80B13C}"My\space god,}$$
 $${\color{#BE78DA}my\space universe .."}$$
 
+<img src="https://64.media.tumblr.com/252dd494e5b2ed5ced70cba8f1948fe7/bffbd2ab6e02ef27-a2/s2048x3072/a8e4b9d8457ac2f5ac5d864cbd48354d661bf7de.pnj" width="450">
+
+</div>
+
+<div align="center">
+<img src="https://64.media.tumblr.com/252dd494e5b2ed5ced70cba8f1948fe7/bffbd2ab6e02ef27-a2/s2048x3072/a8e4b9d8457ac2f5ac5d864cbd48354d661bf7de.pnj" width="450">
 </div>
 
 <div align="center">
 <img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">
-</div>‎
+</div>
+
+<div align="center">
+<img src="https://64.media.tumblr.com/26de1d492753420c5362c97ae560a268/bffbd2ab6e02ef27-62/s2048x3072/27f696cd9d6201b0eaec3d4998c9e7727e81be95.pnj" width="677">‎
+</div>
 
 <div align="center">
   
