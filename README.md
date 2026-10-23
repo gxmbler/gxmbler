@@ -1,9 +1,11 @@
 <div align="center">
+  
 $${\color{#80B13C }"My\space god,\space}$$ $${\color{#80B13C }my universe .."}$$
+
 </div>
 
 <div align="center">
-[<img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="450">]
+[<img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">]
 </div>
 
 
