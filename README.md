@@ -1,8 +1,11 @@
-<p align="center">
-"My god, my universe .."
-</p>
+<div align="center">
+$${\color{#80B13C }"My\space god,\space}$$ $${\color{#80B13C }my universe .."}$$
+</div>
 
-[![Untitled21-20260331095000.png](https: //i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png)](https://postimg.cc/RJ3s36jz) 
+<div align="center">
+[<img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="450">]
+</div>
+
 
 ‎‎<p align="center"> ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/angelicdxve) ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [straw](https://hearts4cynari.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[prns](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [ata](https://oceance.atabook.org)‎
 
