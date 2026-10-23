@@ -7,12 +7,9 @@ $${\color{#BE78DA}my\space universe .."}$$
 
 <div align="center">
 <img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">
-</div>
+</div>‎
 
-
-‎‎<p align="center"> ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/angelicdxve) ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [straw](https://hearts4cynari.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[prns](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [ata](https://oceance.atabook.org)‎
-
-<p align="center">
+<div align="center">
   
 [<img src="https://i.postimg.cc/ryCFD5ys/obraz-2026-10-23-221744005.png" width="350">](https://rentry.co/angelicdxve)
 [<img src="https://i.postimg.cc/xjyTXLfs/obraz-2026-10-23-221722975.png" width="350">](https://hearts4cynari.straw.page)
