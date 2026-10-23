@@ -13,6 +13,7 @@ $${\color{#BE78DA}my\space universe .."}$$
 ‎‎<p align="center"> ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[rentry](https://rentry.co/angelicdxve) ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [straw](https://hearts4cynari.straw.page)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎[prns](https://en.pronouns.page/@oceance)‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ [ata](https://oceance.atabook.org)‎
 
 <p align="center">
+  
 [<img src="https://i.postimg.cc/ryCFD5ys/obraz-2026-10-23-221744005.png" width="400">](https://rentry.co/angelicdxve)
 [<img src="https://i.postimg.cc/xjyTXLfs/obraz-2026-10-23-221722975.png" width="400">](https://hearts4cynari.straw.page)
 [<img src="https://i.postimg.cc/zv5zdGjd/obraz-2026-10-23-221644543.png" width="400">](https://en.pronouns.page/@oceance) 
