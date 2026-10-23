@@ -1,7 +1,7 @@
 <div align="center">
   
 $${\color{#80B13C}"My\space god,}$$
-$${\color{#80B13C}my\space universe .."}$$
+$${\color{#BE78DA}my\space universe .."}$$
 
 </div>
 
