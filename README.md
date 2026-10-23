@@ -30,7 +30,7 @@ $${\color{#BE78DA}my\space universe .."}$$
 </div>
 
 <div align="center">
-<img src="https://64.media.tumblr.com/cbd72a78e0f45e7428c0d8e7457dce17/6e334b685e896f5b-e7/s1280x1920/edc12d67c24279c231766216a0089c5ce4ae94ab.pnj" width="677">
+<img src="https://64.media.tumblr.com/252dd494e5b2ed5ced70cba8f1948fe7/bffbd2ab6e02ef27-a2/s2048x3072/a8e4b9d8457ac2f5ac5d864cbd48354d661bf7de.pnj" width="250">
 </div>
 
 <div align="center">
