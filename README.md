@@ -64,12 +64,11 @@ $${\color{#FCDFA6}ic;\space @strawberrymilkshxke\space ♡}$$
 
 <div align="center">
   
-[<img src="https://github.com/user-attachments/assets/4118a6d2-dd42-42ac-905e-6e6bc2a23b95" width="190">](https://nyankweotu.straw.page/)
+[<img src="https://github.com/user-attachments/assets/bcd199bb-7a2a-4774-abf6-8d1a4e994c72" width="190">](https://nyankweotu.straw.page/)
 [<img src="https://github.com/user-attachments/assets/f154ba65-8125-44cd-b97e-f90844a5392b" width="210">](https://pronouns.cc/@pupwood)
 [<img src="https://github.com/user-attachments/assets/1d74605e-c72a-4a7f-9543-3d8dfa302d9b" width="190">](https://bottleofmilkchan.atabook.org/)
   
 </div>
-
 
 <div align="center">
 <details> <summary>$${\color{#FCDFA6}short\space info}$$</summary>
