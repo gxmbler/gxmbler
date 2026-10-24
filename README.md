@@ -63,11 +63,11 @@ $${\color{#FCDFA6}ic;\space @strawberrymilkshxke\space ♡}$$
   <a href="https://guns.lol/nyankitatu">𝔤𝔲𝔫𝔰𝔩𝔬𝔩</a>  ♡
 
 <div align="center">
-  
-[<img src="https://github.com/user-attachments/assets/bcd199bb-7a2a-4774-abf6-8d1a4e994c72" width="190">](https://nyankweotu.straw.page/)
-[<img src="https://github.com/user-attachments/assets/f154ba65-8125-44cd-b97e-f90844a5392b" width="210">](https://pronouns.cc/@pupwood)
+
+[<img src="https://github.com/user-attachments/assets/383c1a9d-a090-428f-aa51-244d4d1a9156" width="210">](https://pronouns.cc/@pupwood)
+[<img src="https://github.com/user-attachments/assets/bcd199bb-7a2a-4774-abf6-8d1a4e994c72" width="200">](https://nyankweotu.straw.page/)
 [<img src="https://github.com/user-attachments/assets/1d74605e-c72a-4a7f-9543-3d8dfa302d9b" width="190">](https://bottleofmilkchan.atabook.org/)
-  
+
 </div>
 
 <div align="center">
