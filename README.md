@@ -50,7 +50,7 @@ $${\color{#FFB3D0}call\space me\space Meg\space or\space Megan,\space 7teen,\spa
   <img src="https://64.media.tumblr.com/0d4d77442db763030e21920ff0a6bec8/a0685db9deec1df4-d6/s1280x1920/6aeee8e57b8dea0c790f5dc818eabba010288bac.pnj" width="549" />
   <img src="https://64.media.tumblr.com/1b3f863c73b7391a1703c8359fe2ef68/95c6047bb46dec32-0d/s2048x3072/ab42970518ce197f177f907f54f662fccc86b726.pnj" />
 
-<img src="Untitled1604_20260921213521.png" width="210" />
+<img src="https://github.com/user-attachments/assets/a0456fb8-693d-4e9f-aecb-da311562586f" width="210" />
 
 <p align="center">
 $${\color{#FCDFA6}ic;\space @strawberrymilkshxke\space ♡}$$
