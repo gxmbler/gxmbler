@@ -59,16 +59,14 @@ $${\color{#FCDFA6}ic;\space @strawberrymilkshxke\space ♡}$$
   <img src="https://64.media.tumblr.com/88130413fece039599c6187f35322268/76f6621c96c1ea9f-0a/s2048x3072/6255fd20b4e3f504a9ecc99443bca43882cb2e7d.pnj" width="219" />
 
 <p align="center">
-<a href="https://nyankweotu.straw.page/">𝔰𝔱𝔯𝔞𝔴</a>  ♡
   <a href="https://www.pinterest.com/blanketbows/">𝔭𝔦𝔫𝔱𝔢𝔯𝔢𝔰𝔱</a>  ♡
-  <a href="https://bottleofmilkchan.atabook.org/">𝔞𝔱𝔞</a>  ♡
   <a href="https://guns.lol/nyankitatu">𝔤𝔲𝔫𝔰𝔩𝔬𝔩</a>  ♡
 
 <div align="center">
   
-[<img src="https://github.com/user-attachments/assets/4118a6d2-dd42-42ac-905e-6e6bc2a23b95" width="180">](https://nyankweotu.straw.page/)
-[<img src="https://github.com/user-attachments/assets/f154ba65-8125-44cd-b97e-f90844a5392b" width="200">](https://pronouns.cc/@pupwood)
-[<img src="https://github.com/user-attachments/assets/1d74605e-c72a-4a7f-9543-3d8dfa302d9b" width="180">](https://bottleofmilkchan.atabook.org/)
+[<img src="https://github.com/user-attachments/assets/4118a6d2-dd42-42ac-905e-6e6bc2a23b95" width="190">](https://nyankweotu.straw.page/)
+[<img src="https://github.com/user-attachments/assets/f154ba65-8125-44cd-b97e-f90844a5392b" width="210">](https://pronouns.cc/@pupwood)
+[<img src="https://github.com/user-attachments/assets/1d74605e-c72a-4a7f-9543-3d8dfa302d9b" width="190">](https://bottleofmilkchan.atabook.org/)
   
 </div>
 
