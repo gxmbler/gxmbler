@@ -11,16 +11,16 @@ $${\color{#BE78DA}my\space universe .."}$$
 
 </div>
 
+
+<div align="center">
+<img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">
+</div>
+
 <div align="center">
 <details> <summary>$${\color{#FFB3D0}about\space me\space : }$$</summary>
 $${\color{#FFB3D0}call\space me\space Meg\space or\space Megan,\space 7teen,\space lesbian,\space autistic,\space 28/04 }$$
 
 </details> </div>
-
-
-<div align="center">
-<img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">
-</div>
 
 <div align="center">
 <img src="https://64.media.tumblr.com/26de1d492753420c5362c97ae560a268/bffbd2ab6e02ef27-62/s2048x3072/27f696cd9d6201b0eaec3d4998c9e7727e81be95.pnj" width="677">‎
