@@ -12,6 +12,13 @@ $${\color{#BE78DA}my\space universe .."}$$
 </div>
 
 <div align="center">
+<details> <summary>$${\color{#FFB3D0}about\space me\space : }$$</summary>
+$${\color{#FFB3D0}call\space me\space Meg\space or\space Megan,\space 7teen,\space lesbian,\space autistic,\space 28/04 }$$
+
+</details> </div>
+
+
+<div align="center">
 <img src="https://i.postimg.cc/PJyBR1yN/Untitled21-20260331095000.png" width="677">
 </div>
 
