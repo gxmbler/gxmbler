@@ -24,7 +24,7 @@ $${\color{#BE78DA}my\space universe .."}$$
 
 <div align="center">
 <details> <summary>$${\color{#FFB3D0}about\space me\space : }$$</summary>
-$${\color{#FFB3D0}call\space me\space Meg\space or\space Megan,\space 7teen,\space lesbian,\space autistic,\space 28/04 }$$
+$${\color{#FFB3D0}call\space me\space Amia,\space Meg\space or\space Megan,\space 7teen,\space lesbian,\space autistic,\space 28/04 }$$
 
 </details> </div>
 
@@ -48,7 +48,7 @@ $${\color{#FFB3D0}call\space me\space Meg\space or\space Megan,\space 7teen,\spa
 
 <div align="center">
 <details> <summary>$${\color{#FFB3D0}DNI\space list\space : }$$</summary>
-$${\color{#FFB3D0}WIP\space for\space now\space bruv\space >\space C*lou }$$
+$${\color{#FFB3D0} C*lou }$$
 
 </details> </div>
 
